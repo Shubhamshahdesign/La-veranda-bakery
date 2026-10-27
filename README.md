@@ -1,1 +1,1 @@
-# La-v-randa-bakery
+# La-veranda-bakery
